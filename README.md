@@ -1,2 +1,2 @@
 # anveshinvest.co
-Investment Strategic Partnership Eith Anvesh
+Investment Strategic Partnership With Anvesh
